@@ -1,6 +1,6 @@
 O Jirkovi a jeho tøech psech
 
-![Jirka]](https://img.cncenter.cz/img/18/new_article/2106308-img-petra-paroubkova-s-fenkami-gaskonskeho-baseta-na-smichovske-piazzette-pobliz-andela-v0.jpg?v=0)
+![Jirka](https://img.cncenter.cz/img/18/new_article/2106308-img-petra-paroubkova-s-fenkami-gaskonskeho-baseta-na-smichovske-piazzette-pobliz-andela-v0.jpg?v=0)
 
 Byl jeden sirotek, jmenoval se Jirka a slouil u lakomého sedláka. V nedìli èeládka odpoèívala, jen Jirka musel pást vepøe. U by byl dávno od sedláka utekl. Ale slouila tam také hezká Anièka a on na ni myslel jako na svou nevìstu. Všechno snášel, jen aby jí zùstal nablízku. Jednou v nedìli zase tak u lesa pase, vepøi sbírají bukvice a on sedí pod stromem, na døevìnou píšalku si píská a myslí je u své Anièky. Tu vyjde z lesa myslivec a v patách za ním se enou tøi psi se eleznımi obojky na krku. Myslivec se zastaví u Jirky a povídá: „Pøenech mi ze stáda tøi vepøe, dám ti za nì ty psy.“ „Co bych dìlal se psy,“ øekl Jirka, „a jak by sedlák vyvádìl, e má o tøi vepøe ménì!“ Myslivec zaèal psy vychvalovat, co všechno dovedou. „Tenhle,“ ukázal na ryšavého, „se jmenuje Dr, koho chytí, toho nepustí. Èernı se jmenuje Dech, na koho dıchne, toho omráèí. A tamhleten bílı slyší na jméno Vševím, jak zavìtøí, na deset mil slyší i jehlu do trávy spadnout.“
 
